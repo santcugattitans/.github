@@ -37,8 +37,8 @@ Creiem que la tecnologia també ha de contribuir a reforçar aquests valors i a 
 
 ## 🌐 Més informació
 
-- Web: https://titans.cat
-- Instagram: https://www.instagram.com/titansvoleisantcugat/
+- Web: https://www.titansvoleisantcugat.cat
+- Instagram: https://titans.cat/instagram
 
 ---
 
